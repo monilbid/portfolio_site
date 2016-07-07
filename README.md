@@ -6,4 +6,4 @@ This is Isaiah's input.
 
 This is Monil's input.
 
-Isaiah is Boss big one Not.
+Isaiah is the biggest boss ever.
